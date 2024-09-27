@@ -1,7 +1,7 @@
 ### Bem vindo ao meu perfil. 🅰️
 
 - Meu nome é Anthony Henrique Gouveia Mello
-- Utilizoa plataforma Alura para aperfeiçoar o meu aprendizado.
+- Utilizo plataforma Alura para aperfeiçoar o meu aprendizado.
 - Estou me desenvolvendo nas linguagens JavaScript,HTMl e CSS
 - Utilizo este espaço para minha organização e compartilhamento dos meus projetos
 
