@@ -9,7 +9,7 @@
 
   anthony.gouveia.mello@escola.pr.gov.br
 
- ![](https://tenor.com/bmrasvphRgS.gif)
+ ![](https://tenor.com/view/gogeta-gif-18645481)
 
 
 
