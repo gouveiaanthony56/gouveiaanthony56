@@ -9,8 +9,7 @@
 
   anthony.gouveia.mello@escola.pr.gov.br
 
- ![](https://media.tenor.com/pKen4cFWpLcAAAAC/patrick-star-starfish.gif)
-
+ ![](https://tenor.com/bmrasvphRgS.gif)
 
 
 
